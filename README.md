@@ -1,1 +1,0 @@
-# aos-iiit-hyderabad
